@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **NDA**
 
-- 📫 How to reach me **telegram: @pryvalchuk**
+- 📫 How to reach me in telegram: **@pryvalchuk**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
